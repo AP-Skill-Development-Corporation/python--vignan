@@ -4,7 +4,7 @@
 
 [Day2 Recording SESSION LINK](https://transcripts.gotomeeting.com/#/s/bde0628434167f97bc03bbc03a8b2bc85e867cd8c22af1bd87fe1c0576cb28c4)
 
-[Day3 Recording SESSION LINK](https://transcripts.gotomeeting.com/#/s/44b43b87bb5534aabe9eb98d3c6d4bf5e7fdbe36e9a51055be0b115eff5becba)
+[Day3 Recording Session Link](https://transcripts.gotomeeting.com/#/s/44b43b87bb5534aabe9eb98d3c6d4bf5e7fdbe36e9a51055be0b115eff5becba)
 
 [Day4 Recording Session link](https://transcripts.gotomeeting.com/#/s/2d56755c56c9896ac7900f5629df8a71530b23f66d88deaf3bbc44ac8164aa97)
 
