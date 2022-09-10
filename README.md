@@ -18,12 +18,12 @@
 
 [Day9 Recording Session link](https://transcripts.gotomeeting.com/#/s/039809b8e37db2aa3f5da2db756f68ff0d4c11943a47743e6a8bb70e134dfaf1)
 
-[Day10 Recording Session link]()
+[Day11 Recording Session link](https://transcripts.gotomeeting.com/#/s/5a6223b9921f416b23b1bd206676f864afca495d8602a1358d2a16dce6f5838d)
 
-[Day11 Recording Session link]()
+[Day12 Recording Session link](https://transcripts.gotomeeting.com/#/s/3096137b27fa9a5b29b6cd7ca0a6657141b858f27e242058ba6705ae8bd46d6b)
 
-[Day12 Recording Session link]()
+[Day13 Recording Session link](https://transcripts.gotomeeting.com/#/s/f8a1509b88410a8c07d61e42d912b2693d79d0f60a49cdf1b98d3af796ef90ef)
 
-[Day13 Recording Session link]()
+[Day14 Recording Session link](https://transcripts.gotomeeting.com/#/s/e8df1afc7f8300c86cf035f1bb98a29702fd105109904726d0384d17c290820a)
 
 
