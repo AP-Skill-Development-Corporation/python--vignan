@@ -17,3 +17,13 @@
 [Day8 Recording Session link](https://transcripts.gotomeeting.com/#/s/ac5e71c49e2296c564dc40976c17bbfab36b9a4709dd66475626e8107dec2320)
 
 [Day9 Recording Session link](https://transcripts.gotomeeting.com/#/s/039809b8e37db2aa3f5da2db756f68ff0d4c11943a47743e6a8bb70e134dfaf1)
+
+[Day10 Recording Session link]()
+
+[Day11 Recording Session link]()
+
+[Day12 Recording Session link]()
+
+[Day13 Recording Session link]()
+
+
